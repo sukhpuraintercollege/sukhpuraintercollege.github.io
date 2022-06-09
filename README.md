@@ -1,1 +1,0 @@
-# sukhpuraintercollege.github.io
